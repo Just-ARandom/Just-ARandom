@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Just-ARandom
+- 👀 I’m interested in learning how t create games
+- 🌱 I’m currently learning how to use c#
+- 💞️ I’m looking to collaborate on n/a
+- 📫 How to reach me my email dannymorr56@gmail.com
+- ⚡ Fun fact: there is a radius in a nuclear blast where every frozen chicken will be perfectly cooked.
